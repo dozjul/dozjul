@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dozjul
-- you can call me Julian
+- you can call me Rye
 - [about me](https://about.thejulian.net)
 - My pronouns can be found on the [pronouns page of my about-me site](https://about.thejulian.net/pronouns/)
 
